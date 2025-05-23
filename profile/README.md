@@ -4,7 +4,7 @@ In the ever-evolving world of digital healthcare marketing, many practices fall 
 
 But here’s the truth: you don’t need to run expensive ad campaigns to attract more patients.
 
-A specialized [Doctor Marketing Agency](https://www.deviantart.com/maikel2496/art/No-Ads-45-More-Leads-Doctor-Marketing-Agency-1186794644) knows how to generate organic growth—consistent, compounding, and sustainable visibility that brings in new patients every month without depending on ad spend.
+A specialized [doctor marketing agency](https://www.intelliusmedical.com/) knows how to generate organic growth—consistent, compounding, and sustainable visibility that brings in new patients every month without depending on ad spend.
 
 If you're tired of throwing money into Google or Facebook Ads without real ROI, read on.  
 This guide explains how a Doctor Marketing Agency can help you grow organically, boost credibility, and fill your appointment calendar—no ads required.
